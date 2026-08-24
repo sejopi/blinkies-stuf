@@ -1,7 +1,7 @@
 <div align="center">
 
 
-<img width="600" height="275" alt="tumblr_6e85a7bca2d558153aa8fb973888a05c_b9ec2e94_640" src="https://github.com/user-attachments/assets/faf50116-ca86-4363-837b-9b7cd7708d24" />
+<img width="700" height="375" alt="tumblr_6e85a7bca2d558153aa8fb973888a05c_b9ec2e94_640" src="https://github.com/user-attachments/assets/faf50116-ca86-4363-837b-9b7cd7708d24" />
 
 </p>
 
@@ -15,6 +15,15 @@
 
 <img width="99" height="56" alt="Untitled126" src="https://github.com/user-attachments/assets/f56af70d-c1b3-4b3d-b721-8be9a025867c" /><img width="99" height="56" alt="Untitled125" src="https://github.com/user-attachments/assets/0f46c66f-24c8-44bd-988e-49aa96b5fdf3" /><img width="99" height="56" alt="Untitled121" src="https://github.com/user-attachments/assets/bd077954-459f-48a2-b09f-6e43d0e66cf0" />
 
+<img src="https://file.garden/ZroW4OcqSGtS0a5j/hwoarang%20gifheheh%20made%20by%20sejopi.gif" width="99" height="56"></img></a> <img src="https://file.garden/ZroW4OcqSGtS0a5j/i%20stole%20this%20from%20sejopi.gif" width="100" height="56"></img></a>
+
+</p>
+
+<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/hwo%20win%20outro.gif" width="500" height="281"></img></a>
+
+<img src="https://file.garden/ZroW4OcqSGtS0a5j/stolethisfromsejopi!!.gif" width="200" height="auto"></img></a> <img src="https://file.garden/ZroW4OcqSGtS0a5j/sejopimadethisyo.gif" width="200" height="auto"></img></a> <img src="https://file.garden/ZroW4OcqSGtS0a5j/ermsejopimadethisgif.gif" width="200" height="auto"></img></a> <img src="https://file.garden/ZroW4OcqSGtS0a5j/i%20stole%20this%20from%20sejopi%20omg.gif" width="200" height="auto"></img></a>
+
+</p>
 
 ***
 
@@ -61,7 +70,6 @@
 <img width="98" height="19" alt="slipknot" src="https://github.com/user-attachments/assets/f63eaf3e-adb2-4a64-8903-ebf54e3bab37" />
 <img width="100" height="13" alt="deftones" src="https://github.com/user-attachments/assets/592c8403-9be4-4b6b-b932-97de7fb012f6" />
 <img width="150" height="20" alt="seals_Are_cool" src="https://github.com/user-attachments/assets/2ee91e03-a957-4a76-8da1-0246fa250d71" />
-<img width="150" height="20" alt="homestuck disease" src="https://github.com/user-attachments/assets/7cc05850-adf5-49d2-93ef-0200cb3ce27f" />
 <img width="150" height="20" alt="tumblr_4a4f201e864bce22c38f35b885ad55a6_a1c8f3a0_250" src="https://github.com/user-attachments/assets/0176131c-2ff9-4e70-92d0-38ea2e66b038" />
 <img width="150" height="20" alt="46644178_gwpYf5ulxGT0lZH" src="https://github.com/user-attachments/assets/7a95e714-181d-4fcc-8767-632db62f06c7" /><img width="150" height="20" alt="tumblr_b764fbb9c08dd2608ded8deefb1b99a4_9e0bb369_640" src="https://github.com/user-attachments/assets/30855c87-d6d5-45cf-af61-aa9d5cc94f31" />
 <img width="150" height="20" alt="blinkiesCafe-dS" src="https://github.com/user-attachments/assets/941e29ec-2487-4356-b76e-de49373842d6" /><img width="150" height="20" alt="87443277_fpG" src="https://github.com/user-attachments/assets/7ecd4f7c-a543-4a25-a34c-319d49c05c01" /><img width="150" height="20" alt="87233036_KbA" src="https://github.com/user-attachments/assets/380adc0f-54dd-4964-8c40-465ea8faf96a" />
